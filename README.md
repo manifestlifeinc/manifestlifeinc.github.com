@@ -1,1 +1,0 @@
-# manifestlifeinc.github.com
